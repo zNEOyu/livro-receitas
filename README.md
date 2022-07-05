@@ -1,2 +1,0 @@
-# livro-receitas
-Um teste
