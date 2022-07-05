@@ -18,6 +18,6 @@
 - no final faça uma camada de mozzarella em fatias no topo da massa
 - Coloque em fogo 180 graus por 30 minutos.
 
-# Bom apetite :chestnut:
+# Bom apetite! :chestnut:
 
   
